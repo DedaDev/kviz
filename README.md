@@ -1,1 +1,1 @@
-http://kviz.dedadev.top
+https://kefalica.net
